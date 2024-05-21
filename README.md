@@ -1,2 +1,1 @@
-# wallpaper
-my wallpaper
+# wallpaper + pic bed
